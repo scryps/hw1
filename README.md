@@ -9,7 +9,7 @@
 4. ПУТЕШЕСТВИЯ И СПОРТ - это также мои хобби! 
 1. ~~я люблю ничего не делать~~
 ### Я не люблю...
-+ изюм и всё, что с этим связано:![](https://yandex.ru/images/search?text=%D1%81%D1%83%D1%85%D0%BE%D1%84%D1%80%D1%83%D0%BA%D1%82%D1%8B&img_url=https%3A%2F%2Fwebapteka.by%2Ffotogalery%2Fnews%2Fsuhofr-predp-sok.jpg&pos=0&rpt=simage)
++ изюм и всё, что с этим связано:![](https://yandex.ru/images/search?text=%D1%81%D1%83%D1%85%D0%BE%D1%84%D1%80%D1%83%D0%BA%D1%82%D1%8B)
 - приезжать в университет к **первой паре**
 + **_БЛИЦЫ_** 
   - *утренние* электрички (и _вечерние_)
