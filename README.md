@@ -20,3 +20,5 @@
 [мой вк](https://vk.com/id433249598) 
 
 ![](webapteka.by)
+
+![](http://hayinfo.ru/wp-content/uploads/2016/08/%D1%81%D1%83%D1%85%D0%BE%D1%84%D1%80%D1%83%D0%BA%D1%82%D1%8B1-1024x432.jpg)
